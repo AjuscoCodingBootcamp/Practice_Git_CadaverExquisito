@@ -30,6 +30,10 @@ body {
       border-radius: 30px;
 }
 
+
 .title {
       font-family: 'Pacifico', cursive;
 }
+
+footer {
+      text-align: center;
