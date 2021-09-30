@@ -18,3 +18,5 @@ Le lastimó el ala derecha, sin embargo, Amanda llegó a tiempo para evitar que 
 
 Pero cierto día se supo la verdadera identidad de Caty, resulta que era una mariposa que podía viajar en el tiempo y tenia una misión en el bootcamp asi que  decidió contactar a Amanda, pero se encariño con ella y olvidó su misión; después de haber sido herida decidió volver al pasado cuando era una oruga fea y aparentemente “peligrosa” de nuevo se encontraba detrás de la puerta y en ese momento Jaziel iba llegando al salón y cuando la vió exclamó: -¡Quién es ese pokemon!-
 Y Beto y Oscar trataron de escanearlo con su app de pokemon Go entonces...
+
+Entonces la mariposa mudó no sólo de piel sino de realidad ;) 
